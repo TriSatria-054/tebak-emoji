@@ -1,4 +1,4 @@
 # tebak-emoji!
-[WhatsApp Image 2024-09-13 at 17 27 59_68f3820d](https://github.com/user-attachments/assets/e46b016b-8b9b-46cb-bec8-597b43c33802)
-![WhatsApp Image 2024-09-13 at 17 27 59_61f821b2](https://github.com/user-attachments/assets/3cdb6731-e729-4045-8fd5-436a4bb97dd1)
-![WhatsApp Image 2024-09-13 at 18 41 24_4640b7b1](https://github.com/user-attachments/assets/8f598ca2-f3c6-4915-9ea9-d3edbce6f917)
+![Screenshot 2024-09-20 224802](https://github.com/user-attachments/assets/d763f19f-9de3-4bb4-9737-368015009fa4)
+![Screenshot 2024-09-20 224849](https://github.com/user-attachments/assets/f379b623-31bc-4630-9ca9-1c21274cf81e)
+![Screenshot 2024-09-20 224941](https://github.com/user-attachments/assets/1c853c8f-3b0f-4589-96f6-e6a72dd885a5)
